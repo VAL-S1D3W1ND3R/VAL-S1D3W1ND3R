@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VAL-S1D3W1ND3R
+- 👀 I’m interested in formula one!
+- 🌱 I’m currently learning how to actually freaking code-
+- 💞️ I’m looking to collaborate on f1 edits
+- 📫 How to reach me @DARLING_OP81 on X
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: psst: im max verstappen
